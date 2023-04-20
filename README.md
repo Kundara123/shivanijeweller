@@ -1,1 +1,1 @@
-# shivanijeweller.com
+# shivanijeweller
